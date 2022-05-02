@@ -1,1 +1,1 @@
-# My name is Freda Manu
+# My name is Freda
